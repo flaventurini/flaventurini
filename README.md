@@ -1,4 +1,4 @@
-### Flavia Venturini's Github 👋
+### Flavia Venturini's Github
 ##
 
 <div align="center">
